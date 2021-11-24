@@ -26,3 +26,4 @@
 
 [google](www.google.com)
 ![nani](https://pbs.twimg.com/profile_images/1450071125132660747/ZPYp6-69_400x400.jpg)
+![DQ](https://images.indianexpress.com/2017/10/dulquer-salmaan-7591.jpg?w=600)
